@@ -1,1 +1,0 @@
-# MISHA-S-proyecto-informativo
